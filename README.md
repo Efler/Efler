@@ -1,3 +1,3 @@
 ---
-№## 💫 `_«Fall seven times and stand up eight»_` 💫
+### 💫 _«Fall seven times and stand up eight»_ 💫
 ---
